@@ -2,6 +2,7 @@
 
 ## Gonna Happen
 * House Concert (invite back Cole)
+ * Coordinate with @ctbarna
 * Dog Party 
 
 
