@@ -13,6 +13,7 @@
 * Political Anniversaries 
 * State of the Union Watch Party 
 * Weekend-Long Bender 
+* Hanging out with Abby - also a going away party
 
 
 
