@@ -12,6 +12,8 @@
 * Labor Day 
 * Political Anniversaries 
 * State of the Union Watch Party 
+* goodbye grillout for HH in early aug. 
+* going away for abbey
 * Weekend-Long Bender 
 * Hanging out with Abby - also a going away party
 
